@@ -1,2 +1,2 @@
 No code No pain
-new text readme
+bobri pravyat mirom
